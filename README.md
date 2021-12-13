@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @nami-cham
+- 📫 How to reach me namircp1@gmail.com
